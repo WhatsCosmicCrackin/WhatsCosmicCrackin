@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @WhatsCosmicCrackin
+- I’m interested in joining a coding project, I don't know much as I'm still learning but i can do batch script and am willing to learn any coding lang.
+- Reach me on Discord: WhatsCosmicCrackin#7777 or cluchi04@gmail.com
